@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Web Development
 - 🌱 I’m currently learning ... Java Script
 - 💞️ I’m looking to collaborate on ... Nothing!
-- 📫 How to reach me ... On Insatgram, Username: demonichunterx
+- 📫 How to reach me ... no where
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... Your Gay
 
